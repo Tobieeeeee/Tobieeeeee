@@ -5,7 +5,6 @@
 
 - ⚡ Fun fact **I enjoy everything about art like photography, music, etc**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
